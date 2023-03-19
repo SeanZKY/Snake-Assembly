@@ -1,1 +1,1 @@
-all of the explainations and screenshots are in the book's project - the project took about week
+all of the explainations and screenshots are in the book's project - the project took about a week
